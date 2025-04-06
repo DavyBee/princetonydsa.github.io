@@ -12,7 +12,6 @@ To reach us, send an email to yds@princeton.edu.
 * Jazmin Morales (Secretary-Treasurer)
 * Celine Pham (Social Officer)
 * Thomas Coulouras (Social Officer)
-* David Beeson (Social Media Manager)
 * Alessandro Troncoso (Grievance Officer)
 
 ### Working Group Officers:
